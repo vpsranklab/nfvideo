@@ -1,8 +1,8 @@
-# 银河录像局 - 官方网站发布页
+# 银河录像局：次世代账号合租平台，包含流媒体合租、AI生产力应用合租，支付宝付款
 
 ## 更多优质机场推荐
 
-https://vpsworld.org/fanqiang-ranking/
+[https://vpsworld.org/fanqiang-ranking/](https://vpsworld.org/fanqiang-ranking/)
 
 ---
 
